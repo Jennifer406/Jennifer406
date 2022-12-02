@@ -17,6 +17,12 @@ Trabaje en el sector de contabilidad como auxiliar en un negocio familiar. Luego
 
 Actualmente estoy realizando un curso correspondiente al Nivel 1 de Ingles para Negocios.
 
-## E-mail
+## Información de Contacto
 
-[title](mamanijennifer406@gmail.com)
+Email: mamanijennifer406@gmail.com
+
+[GitHub](https://github.com/Jennifer406)
+
+[Instagram](https://www.instagram.com/)
+
+
