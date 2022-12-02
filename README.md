@@ -1,6 +1,2 @@
 # Hi there 👋
 
----
-
-## Presentación
-
