@@ -12,3 +12,7 @@ Me recibí de Bachiller en Economía y Administración. Luego ingrese a la carre
 ## Experiencia Laboral
 
 Trabaje en el sector de contabilidad como auxiliar en un negocio familiar. Luego en el área de comunicaciones para la compañía de seguros LoJack. Actualmente realizo trabajos eventuales en modelado 3D usando programas como AutoCad, Skepchup, V-ray y Lumion.
+
+## Idiomas
+
+Actualmente estoy realizando un curso correspondiente al Nivel 1 de Ingles para Negocios.
