@@ -16,3 +16,7 @@ Trabaje en el sector de contabilidad como auxiliar en un negocio familiar. Luego
 ## Idiomas
 
 Actualmente estoy realizando un curso correspondiente al Nivel 1 de Ingles para Negocios.
+
+## E-mail
+
+[title](mamanijennifer406@gmail.com)
